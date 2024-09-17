@@ -1,6 +1,5 @@
-hello, im maxon07 (MES)
-я русский
-если вы жертва моего шуточного вируса для дигиспарка позвоните на 89511337107
+hello, im CrythicalMethod(also TheMES)
+i like OneShot and my brain infected The World Machine idialogy
 
 <!---
 Maxon07TEH/Maxon07TEH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
